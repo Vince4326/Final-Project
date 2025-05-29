@@ -1,4 +1,3 @@
-# Final-Project
 
 # Vincent S. – Final Portfolio Project
 
